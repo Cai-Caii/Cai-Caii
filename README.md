@@ -1,4 +1,4 @@
 ## Hi People 🦕💜
 
-Me sou a Sarah✨
+Eu sou Sarah✨
 
